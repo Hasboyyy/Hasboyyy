@@ -1,6 +1,6 @@
 # 👋 Muhamad Arrizal Hasby  
 
-📍 **Location:** Kp. Pabangbon, Desa Lemah Duhur, Caringin, Bogor  
+📍 **Location:** Bogor, Jawa Barat 
 📞 **Contact:** +6285882869883  
 ✉️ **Email:** m.arrizalhasby21@gmail.com  
 🔗 [LinkedIn](https://www.linkedin.com/in/muhamad-arrizal-hasby)  
